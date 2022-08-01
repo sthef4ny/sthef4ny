@@ -4,6 +4,7 @@
 - Atualmente, estou aprendendo SCRATCH e JAVASCRIPT;
 - Estou disponível para colaborar e ajudar meus colegas;
 - Instagram: @sthefany_gabrielaa
+FLAMENGO LINDO
 - <3
 
 <!--
